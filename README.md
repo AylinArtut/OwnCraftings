@@ -4,10 +4,10 @@ Ich habe das Projekt was hier zuvor war, in ein anderes Repository gepackt: http
 
 Einige selbsterstellte Figuren aus Modelliermasse, was schon etwas länger her ist:
 
-![alt text](https://s20.directupload.net/images/210728/plozjsdi.jpg)
+![alt text](https://i.ibb.co/zrZPdF9/1.jpg)
 
-![alt text](https://s20.directupload.net/images/210728/evuau6v8.jpg)
+![alt text](https://i.ibb.co/frJnr3g/2.jpg)
 
-![alt text](https://s20.directupload.net/images/210728/9d28pywm.jpg)
+![alt text](https://i.ibb.co/L56LCFS/3.jpg)
 
-![alt text](https://s20.directupload.net/images/210728/4j2jnhek.jpg)
+![alt text](https://i.ibb.co/J79Vr30/4.jpg)
